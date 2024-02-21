@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @arcadian-guy
+- 👀 I’m interested in AI, Game Dev and Designing
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on Designing and AI projects
+- 📫 How to reach me :
+- Discord - arcadian_guy
+- IG - ax_shh08
+- 😄 Pronouns: He/Him
