@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @arcadian-guy
-- 👀 I’m interested in AI, Game Dev and Designing
-- 🌱 I’m currently learning AI
-- 💞️ I’m looking to collaborate on Designing and AI projects
+- 👀 I’m interested in AI, Game Dev, Designing UI/UX, System Development and Security
+- 🌱 I’m currently learning AI and Designing 
+- 💞️ I’m looking to collaborate on AI projects
 - 📫 How to reach me :
 - Discord - arcadian_guy
 - IG - ax_shh08
