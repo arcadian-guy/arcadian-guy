@@ -3,6 +3,5 @@
 - 🌱 I’m currently learning AI and Designing 
 - 💞️ I’m looking to collaborate on AI projects
 - 📫 How to reach me :
-- Discord - arcadian_guy
 - IG - ax_shh08
 - 😄 Pronouns: He/Him
